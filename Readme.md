@@ -1,0 +1,1 @@
+Source/Inspiration | [Minecraft Website Template / Portal ★ Responsive ★ Easy 1.9.2](https://www.spigotmc.org/resources/minecraft-website-template-portal-%E2%98%85-responsive-%E2%98%85-easy.48410/) & [Hytale Website Template / Portal ★ Responsive ★ Easy 1.1](https://hytalehub.com/resources/hytale-website-template-portal-%E2%98%85-responsive-%E2%98%85-easy.25/)
